@@ -1,2 +1,1 @@
-# thirdspotdigitalmarketing.github.io
-Third Spot Digital Marketing
+# Third Spot Digital Marketing
