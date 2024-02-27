@@ -1,1 +1,1 @@
-# Third Spot Digital Marketing
+# The 3rd Spot Marketing
